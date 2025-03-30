@@ -1,1 +1,0 @@
-He decido borrar todo el readme
